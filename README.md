@@ -1,0 +1,5 @@
+# POPSTARTER
+TODOS TROJANS, PACKS DE CUE, BIOS E VERSÕES DO POPSTARTER 
+
+DOWNLOAD DOS ARQUIVOS:
+https://drive.google.com/file/d/1MvBIP85PJSvjw_ayVnZvnT8j66zXbZ0F/view?usp=drivesdk
